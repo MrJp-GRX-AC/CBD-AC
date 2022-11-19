@@ -1,4 +1,4 @@
-DISCORD: https://discord.gg/mC7S2BDjEa
+DISCORD: https://discord.gg/mC7S2BDjEa \n\n
 DISCORD: https://discord.gg/mC7S2BDjEa
 DISCORD: https://discord.gg/mC7S2BDjEa
 DISCORD: https://discord.gg/mC7S2BDjEa
