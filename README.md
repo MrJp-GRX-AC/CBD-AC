@@ -1,9 +1,4 @@
-DISCORD: https://discord.gg/mC7S2BDjEa \n\n
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
+
 # CBD-AC
 New FiveM anticheat. Look README
 
@@ -77,9 +72,4 @@ Option activated:
 Date and Time:
 Arrest Number:
 
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
-DISCORD: https://discord.gg/mC7S2BDjEa
+
